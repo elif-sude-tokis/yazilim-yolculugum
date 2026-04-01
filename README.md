@@ -1,1 +1,1 @@
-# yaz-l-m-yolculu-um
+# yazilim-yolculugum
